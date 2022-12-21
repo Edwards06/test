@@ -1,2 +1,2 @@
 eu is patan de treaba...
-da desigur
+da desigur sau nu
